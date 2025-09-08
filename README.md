@@ -13,3 +13,5 @@ Last day was so busy although read couple of hours in the morning but rest of th
 Today I was very anxious about my future( Union's announcement was one of the reason..I did hard work for it. The announcement was not so promizing. They will give 4% to the testor. Which is very low i think). Hope for the best for the eligiblity. Pray for me. ALlah save me plz, Ameen. Day 4(26/8/25)
 
 This day 5
+
+Day 6
